@@ -4,12 +4,12 @@
 ### música favorita. Porque casi todo el mundo, o me atrevo decir todo, ha sentido
 ### algo por una canción. 
 
-## ***Llevar el ritmo**
+## ***Llevar el ritmo***
 ### La música tiene ritmo, silencios y repeticiones; a las que hemos llegado a
 ### bailar incluso con un sólo dedo. O respirar tranquilamente al compás de un
 ### instrumental, o ¿por qué no? llorar como si la canción contara cada sollozo. 
 
-## ***De vida a película**
+## ***De vida a película***
 ### Es tan increíble, como una canción puede darle drama a los sentimientos,
 ### puede pasar de ser una tarde observando el atardecer a una nostálgica tarde de
 ### invierno, en soledad admirando el cielo. 
@@ -23,7 +23,7 @@
 ### canción, o porque apareció en el momento más inesperado. 
 ![Guitar](Guitar.jpg)
 
-## ***¿Vía de escape?**
+## ***¿Vía de escape?***
 ### En algunas ocasiones podría interpretarse de esa manera, pero generalmente
 ### es para sentir que alguien nos comprende, que nos puede abrazar o gritar lo
 ### que la mente y el corazón han callado. 
